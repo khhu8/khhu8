@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @khhu8
+- 👀 I’m interested in LEGO and aviation
+- 🌱 I’m currently a high school student
+- 📫 Reach me at guest123.usa@gmail.com
